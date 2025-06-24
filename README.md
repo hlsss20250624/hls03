@@ -23,7 +23,7 @@
 
 点击访问：<a href="https://hls-20.pages.dev/">黑料社合集</a>
 
-点击访问：<a href="https://cg2-23.pages.dev/">精选影视大餐，畅享不停歇</a>
+点击访问：<a href="https://cg2-23.pages.dev/">黑料社高清在线观看</a>
 
 点击访问：<a href="https://hls-19.pages.dev/">黑料爆料在线观看</a>
 
